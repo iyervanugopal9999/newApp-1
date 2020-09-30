@@ -1,4 +1,4 @@
 # newApp
 something branded
 
-these app can make something great and i will be makinh it at the end of octobur, stay tuned!!!
+Thise app can make something great and I will be making it at the end of october, stay tuned!!!
